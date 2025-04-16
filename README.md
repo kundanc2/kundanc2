@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **kundankumar02002@gmail.com**
 
-- 📄Resume [https://shorturl.at/degjP](https://shorturl.at/degjP)
+- 📄Resume [https://shorturl.at/degjP]([https://shorturl.at/degjP](https://shorturl.at/dCWpn))
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
